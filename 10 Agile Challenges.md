@@ -1,4 +1,4 @@
-Un realistic Expectations  
+Unrealistic Expectations  
 Organization Culture  
 Multilple Ceremines and Artifacts  
 Customner's Willingness  
